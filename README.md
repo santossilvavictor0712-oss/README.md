@@ -7,4 +7,4 @@
 ## pior de todo
 . ** olá, eu sou @sub_sant0s
 
-![](https://i.pinimg.com/originals/81/a0/f8/81a0f8d43360f6ccb5ba74504d94770a.gif)
+![](https://lh6.googleusercontent.com/proxy/XGpoGOaPfHiQNnFBKAXJK8YtPhmBiMaUZgXhzXJLfzKYZiN8BjMlw8BdC9VLmO_N_etfbbDYkgTDmc6FjOtQX8CNxdHTPA2nNwjF)
